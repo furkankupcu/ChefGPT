@@ -1,1 +1,3 @@
-# Encode-Club-AI-Bootcamp
+# CHEF GPT
+
+Muhammet Furkan Küpçü : GtCp6f 
